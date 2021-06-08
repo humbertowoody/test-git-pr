@@ -1,5 +1,7 @@
 # Probando los PR de git para entender qué estamos haciendo mal
 
+ahora si que no tengo ni puta idea qué mierdas está pasando!
+
 Qué mierdas está pasando.
 
 Es que la neta no hace fucking sentido nada de esto.
