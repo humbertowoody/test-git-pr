@@ -2,6 +2,13 @@
 
 Es que la neta no hace fucking sentido nada de esto.
 
+Honestamente ya no sé qué mierda está pasando.
+
+---
+
+> La verdad es que creo que todo esto es debido a la estrategia de merge.
+
+Nope, sigue sin hacer sentido.
 
 ## Tabla de Nombres y Edades°
 
